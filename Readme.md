@@ -6,7 +6,7 @@ I run **multiple YouTube channels** and **multiple Instagram handles**, each foc
 
 However, most platforms (Instagram bio, YouTube description, etc.) allow **only one link**.
 
-To solve this, many big creators use services like **Linktree (linktr.ee)** — a single landing page that contains all their important links.
+To solve this, many big creators use services like **Linktree (linktr.ee)** a single landing page that contains all their important links.
 
 ---
 
